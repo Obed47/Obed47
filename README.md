@@ -2,7 +2,7 @@
 - 👀 I’m interested in software engineering 
 - 🌱 I’m currently learning react and react native
 - 💞️ I’m looking to collaborate on software engineering 
-- 📫 How to reach me +237 677 176 139
+- 📫 How to reach me +237 677 176 139 and obedwirngo47@gmail.com
 - fan of productivity, discipline and hardwork.
 
 <!---
